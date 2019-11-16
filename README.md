@@ -1,1 +1,1 @@
-# Page: https://maksimkonoplich.github.io/window/maket.html
+# Maket: https://maksimkonoplich.github.io/window/maket.html
